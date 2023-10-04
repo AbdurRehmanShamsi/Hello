@@ -1,0 +1,1 @@
+https://www.rivethealth.com/webinars/watch/prioritizing-patient-ar?utm_campaign=Webinar%20%231&utm_medium=email&_hsmi=99810157&_hsenc=p2ANqtz-_d8ozZjZRdD35wiuVj4v2B9LJRIIkIMVlLfyo9tq_fwaXIED1XbHg0sESt50dcnuIkrrAm7sclZhEssOtJkAexUAYVCw&utm_content=99810157&utm_source=hs_automation
